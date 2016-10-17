@@ -8,3 +8,5 @@ I hope Joffrey doesn't die. He seems nice.
 
 (His mom is really intense and kind of crazy though, so I'm not entirely sure
 that family is entirely well adjusted.)
+
+Joffrey thought it would be a good idea to get a job, so that he could become independent.
