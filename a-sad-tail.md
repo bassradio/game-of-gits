@@ -10,3 +10,6 @@ I hope Joffrey doesn't die. He seems nice.
 that family is entirely well adjusted.)
 
 Joffrey thought it would be a good idea to get a job, so that he could become independent.
+
+Joffrey really cleaned up his life. He now works with disadvantaged youth in
+Boston, Mass and has a beautiful wife and three kids.
